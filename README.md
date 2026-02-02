@@ -2,6 +2,8 @@
 
 Here are **powerful and impressive “Thoughts/Concept Lines”** you can use for your **Spotify Data Analysis Project** — perfect for report intros, portfolios, GitHub, LinkedIn, résumé, or PPTs.
 
+![Image Alt](https://github.com/ashukr5270/Spotify-Data-Analysis/blob/main/Img.jpeg?raw=true)
+
 ---
 
 ## 🎧 **Spotify Data Analysis Project – High-Impact Thoughts**
